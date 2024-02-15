@@ -1,2 +1,1 @@
-Bonjour, 
-Je suis en période de formation. 
+Cloud, product manager
